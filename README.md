@@ -43,6 +43,6 @@ Alguns dos projetos disponíveis neste perfil:
 
 ## Contato
 
-[Portfólio](https://portfolioeduardoruiz.com.br)
+[Portfólio](https://portifolioeduardoruiz.com.br)
 
 [LinkedIn](https://linkedin.com/in/eduardo-gropo-ruiz-7b171a336)
